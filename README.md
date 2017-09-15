@@ -1,0 +1,1 @@
+# magicwand-shop.ru
